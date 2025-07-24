@@ -8,11 +8,7 @@
 🌷🌸🌿🌱🌼🌻🌿🌺🌱🌼
 🌿🌼🌷🌸🌱🌺🌱🌼🌻🌿
 🌱🌸🌿🌼🌷🌺🌿🌻🌱🌸
-🌻🌿🌱🌸🌺🌼🌷🌱🌿🌼
-🌸🌷🌿🌱🌼🌻🌺🌿🌱🌸
-🌱🌼🌸🌿🌻🌷🌺🌱🌿🌼
-🌷🌱🌺🌼🌻🌿🌸🌱🌿🌼
-🌿🌼🌱🌸🌺🌻
+🌸🌺🌻
 
 
 <a href="https://www.gitanimals.org/en_US?utm_medium=image&utm_source=X1n9fU&utm_content=farm">
